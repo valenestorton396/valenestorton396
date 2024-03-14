@@ -1,4 +1,4 @@
-### valenestorton
+### **Discord**: [valenestorton](https://discord.com/users/valenestorton)
 
 <!--
 **valenestorton396/valenestorton396** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
